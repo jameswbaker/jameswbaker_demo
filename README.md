@@ -1,4 +1,4 @@
-### HEYYOOOOO ฅ^•ﻌ•^ฅ *:・ﾟ✧
+### HEYYOOOOO *:・ﾟ✧
 
 My name is ᴊᴀᴍᴇꜱ ʙᴀᴋᴇʀ
 I am a sophomore (co2025) at the University of Pennsylvania majoring in Computer Science and Music.
